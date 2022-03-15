@@ -1,0 +1,1 @@
+# sinvercoin.github.io
